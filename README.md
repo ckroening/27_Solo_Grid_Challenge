@@ -29,3 +29,6 @@ https://docs.google.com/document/d/10Q43euaFrxt8RyTqiTRbwAtbSZUxg5j_t54ZzhLXmsg/
 
 Submission:
 http://goo.gl/forms/tG5FFOA5sW
+
+Class Notes:
+https://www.evernote.com/shard/s685/res/540eb320-ab22-4060-a8fc-8b78aa640246/grids.pdf
